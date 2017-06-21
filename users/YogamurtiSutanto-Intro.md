@@ -1,1 +1,0 @@
-I'm a year 2 student from business analytics.
